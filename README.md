@@ -1,6 +1,7 @@
 # 💫 About Me:
 😐I don't like any of this, I only do it because i need it or im obligated to.<br><br>
 
+![b5952996-sst31GX4pD5B](https://github.com/user-attachments/assets/2162935e-dc2e-4629-a49c-d0ede520d2eb)
 
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:gigofernandes@gmail.com) 
